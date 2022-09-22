@@ -22,4 +22,4 @@ I’m interested in combining multimodal neuroimaging, neuropsychological assess
 
 Outside of research I enjoy dancing, swimming, roller-skating, crafting, playing bass and generally trying out anything that interests me! I’m passionate about intersectional feminism, sustainability, and diversity and equity in academia. I believe open source, fair and cross-cultural research in neuroscience is the only way we can achieve an accurate understanding of the brain through a pan-humanistic lens.
 
-I'm active on (https://twitter.com/licataae "Twitter") & (https://www.linkedin.com/in/abigail-licata-456929103 "LinkedIn")
+I'm active on [Twitter](https://twitter.com/licataae "Twitter") & [LinkedIn](https://www.linkedin.com/in/abigail-licata-456929103 "LinkedIn")
